@@ -1,0 +1,1 @@
+# ringkas_berita
